@@ -1,6 +1,6 @@
 # Ravan Oakley — PropTech Portfolio
 
-**PropTech Implementation Specialist | Yardi Platform Expert | Licensed Real Estate Agent**
+**PropTech Implementation Specialist | PM Platform User / Intergration Specialist | Licensed Real Estate Agent**
 
 📍 New York, NY | 📧 RavanOakley@gmail.com | Open to Remote & Hybrid
 
